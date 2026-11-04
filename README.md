@@ -1,16 +1,16 @@
-[![tumblr-0859271353d9af28f247b46d97e79735-b285f6dc-500-gif.webp](https://i.postimg.cc/hvd6xNfQ/tumblr-0859271353d9af28f247b46d97e79735-b285f6dc-500-gif.webp)](https://postimg.cc/RJvgxs1v)
+[![tumblr-f313ef6178ee7be9ec8a497d79bc68cb-24259886-1280.png](https://i.postimg.cc/XYN4HYxz/tumblr-f313ef6178ee7be9ec8a497d79bc68cb-24259886-1280.png)](https://postimg.cc/0b4TrxTY).
 
-[![tumblr-a0079e5abad8c527d4a701f611722889-7a7f7670-1280.gif](https://i.postimg.cc/WztQ5htk/tumblr-a0079e5abad8c527d4a701f611722889-7a7f7670-1280.gif)](https://postimg.cc/N2qJMG6s)
-<details>
-<summary> please read</summary>
-<br>
+.・。.・゜✭・.・✫・゜・。.
 
----
-Do NOT compare me to my friends! I do not have their intentions and dont pull me into their dramas. I had some friends that were problematic, they no longer are my friends but still im terribly sorry if I made you uncomfortable
+ɦҽȴȴơ ί ⍺ɱ ɓҽ⍺ȵ᥉ ơɽ ᭙ɦ⍺ȶҽ꣗ҽɽ ƴơ᭘ ᭙⍺ȵȵ⍺ ƈ⍺ȴȴ ɱҽ! ƈɦҽƈƙ ơ᭘ȶ ɱƴ ƥɽơȵơ᭘ȵ᥉ ȶơ ʆίȵɗ ίȵʆơ ⍺ɓȶ ɱҽ  ȶҽȴȴ ɱҽ ίʆ ίɱ ʆɽίҽȵɗ᥉ ᭙ ᥉ơɱҽơȵҽ ƥɽơɓȴҽɱ⍺ȶίƈ ί ᭙ίȴȴ ⍺ȴ᥉ơ ȵơȶ ʝ᭘᥉ȶ ⍺ɗɗ ȶơ᭘ ί ᭙ơ᭘ȴɗ ȴίƙҽ ȶơ ɠҽȶ ȶơ ƙȵơ᭙ ƴơ᭘ ⍺ ɓίȶ ʆίɽ᥉ȶ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+.・。.・゜✭・.・✫・゜・。.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-now let's talk abt star aka dandyzworldyur1
-they manipulated and guilt tripped me.they were the ones cuddling w me and sending me a friend request. we didnt talk much usually just cuddled not until they randomly stared venting saying things like "I cant take ts life anymore" or "I keep cutting deeper" anf then always said sorry for doing so I said its fine and that I will listen I do listen a lot but I found it kinda weird that it came all of the sudden ! then they started to get more specific like "ehat if I wouldn't just have been born" or smth else I tried to talk them out but they kept doing so I got sort of uncomfy but still was kind and listened, I do not have clips because I didnt think they would be necessary honestly. they then started telling me to unfriended or block people. I didnt and asked why and their answer was bc they harassed me, but ehat was weird when I asked my friends they told me they never even talked to them so I told them no. then they ignored me for a few days before coming back and telling me abt how they might commute soon and told me they were all alone and everyone hates them. then they started abt their friend so called soda who also is on their doc I told them that I cant really help with that bc idk them etc. but they kept talking abt them then they started asking me to gift them ponys I felt bad so I did it was a flutter in my old style. I later on found out abt them harassing people etc. so then I blocked them its been over a month already. I am terribly sorry to the people I made uncomfortable bc I cuddled with them and I really hope you can forgive me for that.
+[![tumblr-b4b61008428a8d1ec84900db0af18a1f-23d14cdc-540.png](https://i.postimg.cc/c15R4vtR/tumblr-b4b61008428a8d1ec84900db0af18a1f-23d14cdc-540.png)](https://postimg.cc/JtZDp4q0)
+.・。.・゜✭・.・✫・゜・。.ㅤㅤㅤㅤƈɽҽɗ᥉ ȶơ ɗҽ⍺ȶɦɦ⍺ʑɦҽɽҽ ơȵ ȶ᭘ɱɓȴɽ⁹ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.・。.・゜✭・.・✫・゜・。.
+
+[![tumblr-edb5a919ad5ae4df37aa90550bb0bd8d-8b6b0e8e-1280.png](https://i.postimg.cc/xdcYQpwc/tumblr-edb5a919ad5ae4df37aa90550bb0bd8d-8b6b0e8e-1280.png)](https://postimg.cc/qtVWXwMT)
 
 
 <!--
